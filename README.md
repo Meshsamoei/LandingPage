@@ -1,3 +1,3 @@
 - 👋 I’m @Meshsamoei
-- 👀 Game Dev, Software Dev
+- 👀 Game Dev, Tech entrepreneur | Enthusiast
 - 📫 @amsamoeimesh@gmail.com
