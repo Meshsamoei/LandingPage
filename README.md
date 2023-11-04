@@ -1,3 +1,4 @@
 - 👋 I’m @Meshsamoei
-- 👀 Game Dev, Tech entrepreneur | Enthusiast
-- 📫 @amsamoeimesh@gmail.com
+- 👀 Founder @ Optimpulse
+- 📫 mesh@optimpulse.co.ke
+- www.optimpulse.co.ke
